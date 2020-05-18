@@ -1,5 +1,11 @@
 # 程序员必看的91部影片包括电影、电视剧和纪录片-附在线地址-持续更新
 
+核心主题：行业发展，人工智能， 信息安全，人机结合，互联网创业等方向。
+
+帮助程序员们和互联网从业者了解行业，科技以及未来。
+
+原文太长，看完整内容请移步：[https://www.kcsou.com/blog/waE4jPUv.htm](https://www.kcsou.com/blog/waE4jPUv.htm)
+
 *   [1 科幻电影](https://www.kcsou.com/blog/waE4jPUv.htm#tocAnchor-1-1)
     *   [1.1 爱、死亡和机器人第一季 - LOVE DEATH + ROBOTS - 2019 - ★★★★★](https://www.kcsou.com/blog/waE4jPUv.htm#tocAnchor-1-1-1)
     *   [1.2 阿丽塔：战斗天使 - Alita: Battle Angel - 2019 - ★★★★](https://www.kcsou.com/blog/waE4jPUv.htm#tocAnchor-1-1-2)
