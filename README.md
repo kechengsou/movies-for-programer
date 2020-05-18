@@ -725,5 +725,845 @@
 
 
 
+### 断线 -  Disconnect - 2012  - ★★★★
+
+虚拟的社交网络连了线，真实的人际关系却断了线。聊天室的每句对话、脸书上的一张照片一条短片，背后隐藏着人渴望与人接触的欲望，但却分分钟带来不堪设想的后果。日理万机的大律师无暇与家人相处沟通，直到儿子出事才悔恨爱得太迟；一对婚姻枯燥无味的夫妇各自在网上寻求慰藉，但网络世界何来秘密；孤僻宅男网上会女神，原来一直被玩更误堕色欲陷阱；顽童网上欺凌同学，乐极生悲；女记者为爆独家猛料，故意接近未成年色情网男模，道德界线难划清。几条故事线纠缠交错，每个荡失于虚拟世界的主人翁，只是渴望找到与人真正的联系和沟通。
+
+
+![在这里插入图片描述](https://imgconvert.csdnimg.cn/aHR0cHM6Ly9jZG5zLml2dG9vbC5jb20vYmxvZy85N2RkMmM0ZjJmNzllMGM5YjFlNTViNmM4YTgxMjEwNy5wbmctdzYwMA?x-oss-process=image/format,png)
+精彩评论：
+> “所有我爱的东西，都在这个房间里” 令人心碎而忧伤的故事。三段线索缓慢交织由破碎到毁灭，还好最后所有心结都能化解，这才是生活继续下去的意义。“爱的奴隶”男孩看的人心疼死…社交网络深似海，网上交友需谨慎。年度容易忽视的好电影。
+
+* 在线播放：[在线播放地址](https://www.kcsou.com/blog/waE4jPUv.htm)
+* 影评地址：https://movie.douban.com/subject/3725295/
+* 上映时间：2012-09
+* 豆瓣评分：8.0
+
+
+### 鹰眼 - Eagle Eye - 2008 - ★★★
+
+中东某地，美国军方的情报系统锁定了一名目标人物，总统不顾系统电脑运算出的建议处理方式，下令定点清除，由此引发了意外的连锁反应……公司小职员杰瑞（希安·拉博夫 饰）的生活平淡乏味，时常手头拮据，连房租也成了问题，由于供职于军方的孪生兄弟意外过世，杰瑞赶回家中参加葬礼，但此行归来后，杰瑞发现家中居然堆满了武器，随即赶到的FBI破窗而入将他逮捕。
+
+与此同时，名叫蕾切尔（米歇尔·莫娜汉 饰）的女人从大街上的电子广告牌上得知自己的儿子被某人绑架，绑架者拥有超乎寻常的能力，能够控制电子产品并监控一切。这名绑架者引导杰瑞摆脱FBI，最终上了蕾切尔的车，两名陌生人被迫合作，在FBI的追捕中落入了神秘绑架者的计划……究竟绑架者是谁？他又有何居心呢？
+
+![在这里插入图片描述](https://imgconvert.csdnimg.cn/aHR0cHM6Ly9jZG5zLml2dG9vbC5jb20vYmxvZy9hZDM0Y2MxYmQ3MWQyMGI4ODU5MzE2NjBkYzUyNjA4MS5wbmctdzYwMA?x-oss-process=image/format,png)
+
+* 在线播放：[在线播放地址](https://www.kcsou.com/blog/waE4jPUv.htm)
+* 影评地址：https://movie.douban.com/subject/2264715/
+* 上映时间：2008-09-26
+* 豆瓣评分：7.1
+
+
+
+### 网络杀机 -  Untraceable - 2008 - ★★★
+
+单身妈妈珍妮弗·马什（迪安·雷恩 Diane Lane 饰）是供职于FBI网络犯罪科的探员，她日常的工作就是对网络进行监视，查找任何一个盗取信用卡及其他可能造成危害的犯罪分子。在一次围剿信用卡盗贼的行动中，珍妮弗偶然进入一个名为KillwithMe的网站，网站通过视频直播一只小猫受虐死去的全过程。珍妮弗直觉该网站背后必有黑幕，她试图追踪IP和服务器，最终一无所获，似乎她所面对的对手具有颇为复杂的背景。
+
+
+不久，该网站更新内容。画面中一个男子被捆绑起来，网站宣称浏览者越多，那名男子死得越快。珍妮弗等人眼睁睁看着男人死去，她决定不惜一切代价救出幕后黑手，却让自己也卷入这个死亡漩涡之中
+
+
+![](https://imgconvert.csdnimg.cn/aHR0cHM6Ly9jZG5zLml2dG9vbC5jb20vYmxvZy8xN2NlNDMyNmVmZDUxMDBmMTdhMDcyZTI4N2Y3ZmUzMi5wbmctdzYwMA?x-oss-process=image/format,png)
+
+* 在线播放：[在线播放地址](https://www.kcsou.com/blog/waE4jPUv.htm)
+* 影评地址：https://movie.douban.com/subject/2337773/
+* 上映时间：2008-01-25
+* 豆瓣评分：6.7
+* 相关文章：[《网络杀机》：在这场“杀人直播”中，每个观众都是帮凶](https://baijiahao.baidu.com/s?id=1617537228316146653)
+
+### 网络惊魂2.0 - The Net 2.0 - 2006 - ★★★
+
+霍普（妮基·迪洛许 饰）是一名电脑专家，某日，受到一家国际企业的雇佣，霍普千里迢迢远赴伊斯坦布尔，去修复在那里遭到破坏的网络防火墙。刚开始，陌生的环境和异国风情让霍普感到很是好奇，然而，随着时间的推移，霍普开始发觉，自己身边所发生的事情渐渐变得诡异起来。
+
+先是信用卡失效，紧接而来的是护照的报废，再来是莫须有的杀人罪名，种种迹象表明，霍普存在在这个世界上的线索正在被某个不知名的黑客一点一滴地慢慢抹去。为了抓到幕后黑手，走投无路的霍普决定使用自己最强大的武器——电脑和网络，让她没有想到的是，绕了一圈，她想要找到的那个人正潜伏在自己的身边。
+
+
+![https://cdns.ivtool.com/blog/01eadd9ae5c92bb67b184d6ee6e94a30.png-w600](https://imgconvert.csdnimg.cn/aHR0cHM6Ly9jZG5zLml2dG9vbC5jb20vYmxvZy8wMWVhZGQ5YWU1YzkyYmI2N2IxODRkNmVlNmU5NGEzMC5wbmctdzYwMA?x-oss-process=image/format,png)
+
+* 在线播放：[在线播放地址](https://www.kcsou.com/blog/waE4jPUv.htm)
+* 影评地址：https://movie.douban.com/subject/1471281/
+* 上映时间：2006-02-07
+* 豆瓣评分：6.4
+* 相关文章：[《网络杀机》：在这场“杀人直播”中，每个观众都是帮凶](https://baijiahao.baidu.com/s?id=1617537228316146653)
+
+
+
+### 防火墙 - Firewall - 2006  - ★★★
+
+年过中旬的杰克·斯坦福（哈里森·福特 Harrison Ford 饰）是位于美国西雅图市太平洋银行的网络安全高级主管，他凭借其主持设计的高科技防火墙软件而备受高层的重视，也因此杰克与妻子儿女过着养尊处优的幸福生活。然而，他的重要性也同样引起了不法之徒的注意。歹徒比尔•考克斯是个高智商的罪犯，他和他的团伙用一年的时间研究斯坦福一家的作息习惯和相关资料。在一切准备充分后，比尔绑架了杰克的家人，并胁迫杰克破解太平洋银行的防盗系统，从而盗出一亿美元现金。 
+
+顾及到妻儿的姓名，杰克违心答应了比尔的要求，与此同时他也和这个狡猾的家伙展开了斗智斗勇的对决
+
+![在这里插入图片描述](https://imgconvert.csdnimg.cn/aHR0cHM6Ly9jZG5zLml2dG9vbC5jb20vYmxvZy8wMDg1MDgwYWQ4MDE0ZWUyNTc0NjBkMjY2NGRlMDRiOS5wbmctdzYwMA?x-oss-process=image/format,png)
+
+* 在线播放：[在线播放地址](https://www.kcsou.com/blog/waE4jPUv.htm)
+* 影评地址：https://movie.douban.com/subject/1474762/
+* 上映时间：2006-02-02
+* 豆瓣评分：6.0
+
+### 网络惊魂  - The Net - 1995 - ★★★
+
+安吉拉（桑德拉·布洛克 Sandra Bullock 饰）是一个与世隔绝的程序员，电脑是她的好帮手也是好朋友，她的大部分生活都围绕着电脑有条不紊的进行着。一次偶然中，安吉拉收到了同事寄来的一张磁盘，而之后没多久，这位同事便死于非命。之后，在一次度假中，安吉拉邂逅了一名英俊帅气的男子，但很快聪明的安吉拉便发现了这名男子心中所怀的不轨。 
+
+安吉拉隐约觉得自己被卷入了大麻烦之中，而一切和那张神秘的磁盘脱不开干系。一次意外中，安吉拉陷入了昏迷，醒来后的她丢失了一切可以证明其身份的证件，而当她完成了挂失补办程序之后，手中的证件上赫然写着一个陌生的名字。这其中究竟发生了怎样的变故？在一次又一次逃脱暗杀的过程中，安吉拉也在渐渐的接近真相。
+
+
+![](https://imgconvert.csdnimg.cn/aHR0cHM6Ly9jZG5zLml2dG9vbC5jb20vYmxvZy83ZDlhY2M4MDZhNzNhZjVlNmZiMWU2ZGNiNzMzYmI5ZC5wbmctdzYwMA?x-oss-process=image/format,png)
+
+* 在线播放：[在线播放地址](https://www.kcsou.com/blog/waE4jPUv.htm)
+* 影评地址：https://movie.douban.com/subject/1293368/
+* 上映时间：1995-07-28
+* 豆瓣评分：6.8
+
+
+## 电视剧
+
+### 硅谷 第六季 - Silicon Valley Season 6 - 2019 - ★★★★★
+
+
+![在这里插入图片描述](https://imgconvert.csdnimg.cn/aHR0cHM6Ly9jZG5zLml2dG9vbC5jb20vYmxvZy9jZjRiNzY2OTgyYWIzYzUyOWY2MDM4YjE0ZGRhZTMwMi5wbmctdzYwMA?x-oss-process=image/format,png)
+
+这是《硅谷》系列的最终季。
+
+新一季将继续聚焦当下科技世界的核心，这些最有可能成功的人，往往是最不容易“处理”成功的人。托马斯·米德迪奇、扎克·伍兹、库梅尔·南贾尼、马丁·斯塔尔、阿曼达·克鲁、欧阳万成、苏珊·克莱尔、马特·罗斯与乔什·布雷纳均回归出演。“《硅谷》是我们人生与工作中的高光时刻，”剧集创作人说，“我们肯定会想念它，但用第六季来完结还不错。”
+
+
+* 在线播放：[在线播放地址](https://www.kcsou.com/blog/waE4jPUv.htm)
+* 影评地址：https://movie.douban.com/subject/30194648/
+* 上映时间：2019-10-27
+* 豆瓣评分：9.4
+
+### 创业时代 - 2018 - ★★
+
+在一次偶然的机会中，软件工程师郭鑫年找到了灵感，他决心开发一款新的手机通讯软件，可以将手机短信以语音的形式在用户之间传送。这个想法让郭鑫年激动不已，他怀着一腔热血，走上了创业之路。在天使投资人和朋友的支持下，郭鑫年经过艰苦的研发，终于令手机软件诞生，起名为魔晶，并获得了巨大的成功，同时也与投资分析师那蓝，成为了莫逆之交。然而创业的道路并非一帆风顺，在激烈的市场竞争和技术更迭中，同行的竞争，技术上的难关，种种问题纷至沓来，郭鑫年经历了一次又一次磨难，终于令新技术得以推广。在郭鑫年最艰难的时期，他收获了爱情。在爱人的鼓励下，他意识到，眼下的困难并不是终结，而是新的开始。最终，郭鑫年和那蓝一起携手，继续走上了创业之路。
+
+
+![](https://imgconvert.csdnimg.cn/aHR0cHM6Ly9jZG5zLml2dG9vbC5jb20vYmxvZy9iMTRkOTA5MjdkYjk2MDllNTYwYjM1YWFjZDBhYjg2ZC5wbmctdzYwMA?x-oss-process=image/format,png)
+
+* 在线播放：[在线播放地址](https://www.kcsou.com/blog/waE4jPUv.htm)
+* 影评地址：https://movie.douban.com/subject/26665352/
+* 上映时间：2018-10-12
+* 豆瓣评分：3.7
+
+### 硅谷 第五季 - Silicon Valley Season 5 - 2018 - ★★★★★
+
+
+![](https://imgconvert.csdnimg.cn/aHR0cHM6Ly9jZG5zLml2dG9vbC5jb20vYmxvZy85NzEzMGI5OTBhMDhiMDg1NzcwOWY2NDMwMGY4ZTI3Mi5wbmctdzYwMA?x-oss-process=image/format,png)
+
+* 在线播放：[在线播放地址](https://www.kcsou.com/blog/waE4jPUv.htm)
+* 影评地址：https://movie.douban.com/subject/27055699/
+* 上映时间：2018-10-12
+* 豆瓣评分：9.2
+
+### 奔腾年代 第四季 - Halt and Catch Fire Season 4 - 2017 - ★★★★★
+
+《电脑狂人》设置在IBM推出首个重要产品——IBM个人电脑之后。前IBM主管人员乔·麦克米伦（李·佩斯饰）打算逆向制造出其前雇主的旗舰产品，并逼迫其现在的公司，卡迪夫电子加入个人电脑之战。麦克米伦招来了戈登·克拉克（史库特·麦克奈利饰）和卡梅伦·豪伊（麦肯齐·戴维斯饰），前者曾是一个出色的工程师，梦想着创造革命性的产品，同时还要应付来自妻子唐娜（凯芮·贝什）的反对，而后者是个情绪不稳定的天才，为了加入麦克米伦的个人电脑项目，她堵上了自己的未来。《电脑狂人》讲述了一个关于创新精神的故事，探寻一段不计后果，站在革命最前沿并为之努力的传奇。
+
+
+![](https://imgconvert.csdnimg.cn/aHR0cHM6Ly9jZG5zLml2dG9vbC5jb20vYmxvZy8wNmQzMjhjZDJlZDYzMGMwNGQ1NjliM2RkZWM3ZWE1Yi5wbmctdzYwMA?x-oss-process=image/format,png)
+
+* 在线播放：[在线播放地址](https://www.kcsou.com/blog/waE4jPUv.htm)
+* 影评地址：https://movie.douban.com/subject/26891591/
+* 上映时间：2017-08-19
+* 豆瓣评分：9.1
+
+
+### 硅谷 第四季 - Silicon Valley Season 4 - 2017 - ★★★★★
+
+该剧描述四个不善社交但绝顶聪明的计算机程序员受到依靠互联网站发家的百万富翁的特殊照顾。他们可以免费住在他家中，但他们的项目日后如果获得成功，他要拿10%的股份。刚开始这些人没能说动一名亿万富翁投资他们的项目，于是各自回到原先的工作岗位。这名亿万富翁和其中一名计算机程序员供职的公司很快意识到他们的新型文件压缩算法则具有无法估量的商业潜力，于是一场白热化的争夺战开始了。
+
+![](https://imgconvert.csdnimg.cn/aHR0cHM6Ly9jZG5zLml2dG9vbC5jb20vYmxvZy9hMTQxZGUyNmU4NTVkODFmZDI5MWE3YmZhODY3Nzg3Yy5wbmctdzYwMA?x-oss-process=image/format,png)
+
+* 在线播放：[在线播放地址](https://www.kcsou.com/blog/waE4jPUv.htm)
+* 影评地址：https://movie.douban.com/subject/26776807/
+* 上映时间：2017-04-23
+* 豆瓣评分：9.2
+
+### 暗网 第一季 - Dark Net Season 1 - 2016 - ★★★★
+
+A documentary series that explores the furthest reaches of the internet and the people who frequent it, Dark Net provides a revealing and cautionary look inside a vast cyber netherworld rarely witnessed by most of us.
+
+
+![](https://imgconvert.csdnimg.cn/aHR0cHM6Ly9jZG5zLml2dG9vbC5jb20vYmxvZy85NDhhZjQ2N2JlNWRkZThjODA1MzhhOWJjYzExNTkzYi5wbmctdzYwMA?x-oss-process=image/format,png)
+
+* 在线播放：[在线播放地址](https://www.kcsou.com/blog/waE4jPUv.htm)
+* 影评地址：https://movie.douban.com/subject/26724891/
+* 上映时间：2016-01-21
+* 豆瓣评分：7.6
+
+### 奔腾年代 第三季 - Halt and Catch Fire Season 3 - 2016 - ★★★★★
+
+故事背景为二十世纪八十年代初的美国硅谷，其时个人电脑正处于萌芽阶段，IBM公司刚刚推出旗下第一款主打产品并垄断市场。故事主人公为乔·麦克米伦（李·佩斯 饰），一个富有远见且极具野心和胆识的IBM前高官，离开老东家后他神秘失踪一年，现任职于“卡迪夫电子公司”。乔一心想要设计出革命性科技产品，与老东家抗衡，他召集了高登·科拉克（斯科特·麦克纳里 饰）——因产品失败而一蹶不振、得不到妻子支持的天才工程师，还有卡梅伦·霍威（麦肯兹·戴维斯 饰）——曾与乔发生过一夜情的科技奇才。乔运用强硬手段，迫使现任老板不得不加入这场野心勃勃、竞争激烈的科技革命洪流。
+
+
+[外链图片转存失败,源站可能有防盗链机制,建议将图片保存下来直接上传(img-KJ4YjlkA-1589766224482)(https://cdns.ivtool.com/blog/fe5518d5f10dc4563985bedd2bbb3dda.png-w600)]
+
+* 在线播放：[在线播放地址](https://www.kcsou.com/blog/waE4jPUv.htm)
+* 影评地址：https://movie.douban.com/subject/26654033/
+* 上映时间：2016-08-23
+* 豆瓣评分：8.7
+
+
+### 硅谷 第三季 - Silicon Valley Season 3 - 2016 - ★★★★★
+
+
+![](https://imgconvert.csdnimg.cn/aHR0cHM6Ly9jZG5zLml2dG9vbC5jb20vYmxvZy82OTM1NGUyY2U0NDQyYjI3YzE0MzQyY2ExODU4Y2FjOC5wbmctdzYwMA?x-oss-process=image/format,png)
+
+* 在线播放：[在线播放地址](https://www.kcsou.com/blog/waE4jPUv.htm)
+* 影评地址：https://movie.douban.com/subject/26776807/
+* 上映时间：2016-04-24
+* 豆瓣评分：9.2
+
+
+### 奔腾年代 第二季 - Halt and Catch Fire Season 2  - 2015 - ★★★★
+
+时间来到1985年，Cameron(麦肯锡·戴维斯)和Donna(凯莉·毕许)的Mutiny公司上线，作为因特网理念的开拓者，公司运营不顺，两个妹子一脸心塞。
+
+![](https://imgconvert.csdnimg.cn/aHR0cHM6Ly9jZG5zLml2dG9vbC5jb20vYmxvZy84MzgyMjQ1Njg3NTAwZGI2NzA4ZWRjNDBlNjhkZGE4Yi5wbmctdzYwMA?x-oss-process=image/format,png)
+
+* 在线播放：[在线播放地址](https://www.kcsou.com/blog/waE4jPUv.htm)
+* 影评地址：https://movie.douban.com/subject/25964145/
+* 上映时间：2015-05-31
+* 豆瓣评分：8.3
+
+### 硅谷 第二季 -  Silicon Valley Season 2 - 2015 - ★★★★★
+
+
+![](https://imgconvert.csdnimg.cn/aHR0cHM6Ly9jZG5zLml2dG9vbC5jb20vYmxvZy81OTZkNmZhODI1NTMwMmJlMzc5YmJjOTJmNDM4OTYyMS5wbmctdzYwMA?x-oss-process=image/format,png)
+
+* 在线播放：[在线播放地址](https://www.kcsou.com/blog/waE4jPUv.htm)
+* 影评地址：https://movie.douban.com/subject/25871679/
+* 上映时间：2015-04-12
+* 豆瓣评分：9.2
+
+### 奔腾年代 第一季 - Halt and Catch Fire Season 1 - 2014 - ★★★★
+
+故事发生在上世纪八十年代早期，那时候个人电脑正处在萌芽阶段，一群富有远见卓识的工程师和科技奇才抓住机会对个人电脑的结构和技术进行革新，使之更符合时代的需求。他们最终创立了领先于时代的IT企业「巨舰」。在获得成功之后，这些人的合作关系开始面临挑战，贪婪和自负蒙蔽了他们的理智，再加上硅谷的文化和IT业的大气候每天都在发生改变，他们稍不留神就可能阴沟里翻船。Lee Pace扮演善于提出新思路的IT天才Joe MacMillan，总是能领先别人两步——无论是朋友还是敌人。他原本是IBM公司的明星销售员，最近因为某种神秘的情况离职了。他很快出现在创业失败的达拉斯科技公司「Cardiff Giant」里，他将引领这家不起眼的小公司成为新个人电脑时代的领头羊。Toby Huss扮演「Cardiff Giant」公司销售部的高级副总裁，正是他雇用了Joe。他对Joe的销售业绩和个人胆识十分赏识，但他很快后悔了……Joe不仅「绑架」了「Cardiff Giant」公司，俨然自己是公司老大，还惹来IBM公司的愤怒。
+
+“Halt and catch fire”是一个早期电脑指令，执行后使计算机进入竞争状态。创新与探索，挑战与机遇，自负与贪婪，乔·麦克米伦，将引领这家不起眼的小公司，成为奔腾年代的新领头羊。
+
+
+![](https://imgconvert.csdnimg.cn/aHR0cHM6Ly9jZG5zLml2dG9vbC5jb20vYmxvZy81Y2ZlOWJjNjA1MDA2NjhmY2Y3OGI5N2IzODBiNzZmZC5wbmctdzYwMA?x-oss-process=image/format,png)
+
+* 在线播放：[在线播放地址](https://www.kcsou.com/blog/waE4jPUv.htm)
+* 影评地址：https://movie.douban.com/subject/21371686/
+* 上映时间：2014-06-01
+* 豆瓣评分：8.3
+
+
+### 硅谷 第一季 -  Silicon Valley Season 1 - 2014 - ★★★★★
+
+故事发生在高科技产业云集的美国硅谷，在这里，最有资质成功的人往往却是最没有办法处理其“功成名就”的人，本剧主人公理查德（托马斯·米德勒蒂奇 Thomas Middleditch 饰）正是这样的人。 
+
+故事围绕着包括理查德在内的四个不善社交但绝顶聪明的计算机程序员，以及早期依靠互联网站发家的百万富翁埃利希（托德·约瑟夫·米勒 T.J. Miller 饰）。理查德他们免费住在埃利希那个号称“孵化器”的别墅里，自行研究开发有潜力的科技项目。他们原以为理查德开发的“魔笛手”注定是个失败的产品，岂料其运用的新型压缩算法具有无穷的商业潜力，当即引起大公司“互利”的注意，要高价收购。正当理查德要同意时，另一家投资公司加入争夺，“魔笛手”一时间水涨船高，一场价值千万的争夺战开始了
+
+![](https://imgconvert.csdnimg.cn/aHR0cHM6Ly9jZG5zLml2dG9vbC5jb20vYmxvZy9mMGJlMzg1MmVlNWExODhlOTM5OWIxMTVkNDcyOTM3My5wbmctdzYwMA?x-oss-process=image/format,png)
+
+* 在线播放：[在线播放地址](https://www.kcsou.com/blog/waE4jPUv.htm)
+* 影评地址：https://movie.douban.com/subject/20644938/
+* 上映时间：2014-04-06
+* 豆瓣评分：9.1
+
+
+###IT狂人特别篇 - The IT Crowd: The Internet Is Coming - 2013  - ★★★★★
+
+曾卷起一股英式幽默风潮的情景喜剧《IT狂人》，在阔别观众2年多之后再度袭来！距第四季完结至今，观众们始终翘首以盼，尽管导演表示不再制作第五季，但他还是重新启动了剧集，推出了本特别篇，“还给观众一个结尾”。Moss，Roy和Jen，位于公司地下室的IT部门三狂人，这次又会遭遇怎么样的爆笑故事？ 
+
+本特别篇依然围绕着IT部三人展开：Roy恋上了七楼一个姑娘，但是很快，他发现自己似乎有情感缺陷，恋情因此摇摇欲坠；与此同时，Moss也发现自己不够自信，在老板Douglas的建议下，他跑去女装店买了一条女式长裤。随后，一个大麻烦找上了Jen和Roy，这个飞来横祸不仅影响了他们个人，更是危及公司的声誉，Jen和Roy面临着被解雇的危险……
+
+![在这里插入图片描述](https://imgconvert.csdnimg.cn/aHR0cHM6Ly9jZG5zLml2dG9vbC5jb20vYmxvZy82MTBmYzAxOTlmYWFkNDZlZWI3NDMzMzEzMmE2ZWVkYi5wbmctdzYwMA?x-oss-process=image/format,png)
+
+* 在线播放：[在线播放地址](https://www.kcsou.com/blog/waE4jPUv.htm)
+* 影评地址：https://movie.douban.com/subject/20453087/
+* 上映时间：2013-09-27
+* 豆瓣评分：9.2
+
+
+### IT狂人 第四季 - The IT Crowd Season 4 - 2010 - ★★★★★
+
+T狂人再度袭来，Moss，Roy和Jen第四季强势回归。剧中他们依然在公司地下室的IT部门工作，依然会常常遇到各种各样的爆笑事件。
+
+Jen（凯瑟琳·帕金森 Katherine Parkinson 饰）想挑战自我，自荐担任公司的娱乐总监一职，然而其他人并不看好她，包括她的上司Douglas（马特·贝里 Matt Berry 饰），Jen能否做好这个工作？与此同时，Roy（克里斯·奥多德 Chris O'Dowd 饰）失恋了，女友一声不吭地离他而去，这让他倍受打击，整天唉声叹气，大家对此束手无策。Moss（理查德·艾欧阿德 Richard Ayoade 饰）则遇上了好事，他在一个火爆的电视节目中赢得了冠军，还因此受邀到一家俱乐部，天才冠军们聚集一堂，Moss会迎来怎么样的天才对决？第四季的IT狂人，精彩纷呈不容错过。
+
+
+![](https://imgconvert.csdnimg.cn/aHR0cHM6Ly9jZG5zLml2dG9vbC5jb20vYmxvZy85MWRiNzFjYjdmYTQ5ZjJlNDVlNTIyNTI4Mjg4ZTI2OC5wbmctdzYwMA?x-oss-process=image/format,png)
+
+* 在线播放：[在线播放地址](https://www.kcsou.com/blog/waE4jPUv.htm)
+* 影评地址：https://movie.douban.com/subject/4850563/
+* 上映时间：2010-06-25
+* 豆瓣评分：9.3
+
+
+### IT狂人 第三季 - The IT Crowd Season 3 - 2008 - ★★★★★
+
+地处公司地下一层的IT部门，故事仍在继续。除了发型的变化，二男一女的IT部仍然具有强大的吸引稀奇古怪事情的体质。
+
+这边，Moss（理查德•艾欧阿德 Richard Ayoade 饰）阴差阳错地和一伙抢银行团体捆绑在了一起，引出了一场啼笑皆非的故事；Jen（凯瑟琳•帕金森 Katherine Parkinson 饰）做起了摄影师，对象是一群IT男，场面极其古怪；而Roy（克里斯•奥多德 Chris O'Dowd 饰）则总是受伤最多的那一个，稀奇古怪的事情发生的地方，总有Roy在那。而Douglas（马特•贝里 Matt Berry 饰）则时不时抢抢IT部门的风头，好色爱美女的他惹出了不少好笑的事。IT狂人，给你带来爆笑的轻松体验。
+
+
+![](https://imgconvert.csdnimg.cn/aHR0cHM6Ly9jZG5zLml2dG9vbC5jb20vYmxvZy81Zjk1OWY5MDlkMmNlMDM2NTRjZGNmYWVkMjljMGEzOC5wbmctdzYwMA?x-oss-process=image/format,png)
+
+* 在线播放：[在线播放地址](https://www.kcsou.com/blog/waE4jPUv.htm)
+* 影评地址：https://movie.douban.com/subject/3345619/
+* 上映时间：2010-06-25
+* 豆瓣评分：9.3
+
+### IT狂人 第二季 - The IT Crowd Season 2 - 2007 - ★★★★★
+
+IT部门依旧只有Jen（凯瑟琳•帕金森 Katherine Parkinson 饰）、Moss（理查德•艾欧阿德 Richard Ayoade 饰）、Roy（克里斯•奥多德 Chris O'Dowd 饰）三人。Jen依旧忙着寻找恋情，Moss依旧纠结着奇怪的问题，而Roy则总是和不可思议的事沾边。
+
+这边Jen邂逅了一位不错的对象，要和其一起去看话剧，本以为好事将近的Jen，结果却是大逆转；公司被大老板的儿子Douglas（马特•贝里 Matt Berry 饰）继承，而Douglas的风流韵事颇多，其中他与一位越南女子的故事更是令人猜不到结局；IT部门原来不止有三人，寄居在这儿的还有传说中的第四人……这群狂人干着和IT不相关的事，给你带来最意想不到的欢乐故事。
+
+
+![](https://imgconvert.csdnimg.cn/aHR0cHM6Ly9jZG5zLml2dG9vbC5jb20vYmxvZy8zMGU0NDVmNWJlNzNlNWUwZTBkNDY0MTAxMTc1YTczYy5wbmctdzYwMA?x-oss-process=image/format,png)
+
+* 在线播放：[在线播放地址](https://www.kcsou.com/blog/waE4jPUv.htm)
+* 影评地址：https://movie.douban.com/subject/25964145/
+* 上映时间：2007-08-24
+* 豆瓣评分：9.3
+
+
+### IT狂人 第一季 - The IT Crowd Season 1  - 2006 - ★★★★★
+
+去大公司面试成功的Jen（凯瑟琳·帕金森 Katherine Parkinson 饰）以为自己中了头彩，结果却被分配到了地下层的IT部门。部门里只有2个人，Moss（理查德·艾欧阿德 Richard Ayoade 饰）和Roy（克里斯·奥多德 Chris O'Dowd 饰），2个电脑方面的专家，生活常识类的怪人。对电脑一窍不通的Jen强装出一副精通的样子，惹出了不少笑话。 
+
+Jen和IT怪人二人组意外的很合拍，总会把一些本来很平常的事情，弄得一发不可收拾，让人哭笑不得。而公司的老板（克里斯多夫·莫利斯 Christopher Morris 饰）也会时不时的出现，和他们一起上演让人捧腹大笑的故事。别具一番风味的英式幽默故事在IT部门上演。
+
+![](https://imgconvert.csdnimg.cn/aHR0cHM6Ly9jZG5zLml2dG9vbC5jb20vYmxvZy8zNDlhYzUxYTJmNDU5YTJmYTAzM2YzZWI0Mzg3YzgyMS5wbmctdzYwMA?x-oss-process=image/format,png)
+
+* 在线播放：[在线播放地址](https://www.kcsou.com/blog/waE4jPUv.htm)
+* 影评地址：https://movie.douban.com/subject/1758810/
+* 上映时间：2006-02-03
+* 豆瓣评分：9.0
+
+
+## 纪录片
+
+### 纪实：人工智能真的来了 - 2017 - ★★★★
+
+![](https://imgconvert.csdnimg.cn/aHR0cDovL2ltZy5tcC5zb2h1LmNvbS91cGxvYWQvMjAxNzA2MDUvMTZiNDU3MjM3MjdlNDI0YmJlYTViYjMwY2ZmZjM3MDZfdGgucG5n?x-oss-process=image/format,png)
+
+随着人工智能技术的高速发展，语音识别、图像识别、人脸识别、无人车、深度学习机器等热门人工智能词汇逐渐跃进人们的视野，而人工智能也将会逐步渗透人们生活的各个领域。为此，《杨澜访谈录》2016年策划制作了一部人工智能系列纪录片，节目组走访了国内外人工智能最前沿科技的研究基地及学府，为观众展示当前最先进的人工智能技术，揭开人工智能的神秘面纱，一一细述科技背后的故事。
+
+* 在线播放：[在线播放地址](https://www.kcsou.com/blog/waE4jPUv.htm)
+* 影评地址：https://movie.douban.com/subject/27045338/
+* 上映时间：2017-05-15
+* 豆瓣评分：8.5
+
+### 沉入暗网 -  Down the Deep, Dark Web - 2016
+
+![](https://imgconvert.csdnimg.cn/aHR0cHM6Ly9jZG5zLml2dG9vbC5jb20vYmxvZy8yYmYyNTkyYmM1NjdkMGNlZjQ4ODQ0MzE1YWRhNjg0OS5wbmctdzYwMA?x-oss-process=image/format,png)
+
+A Gonzo-style exploration that goes beyond everything you thought you knew about the dangers, and promise, of the Darknet. Hackers, Cypherpunks and crypto-anarchists guide us ever deeper down this rabbit hole, uncovering the hidden light at the bottom of the deep, dark web. 
+
+* 在线播放：[在线播放地址](https://www.kcsou.com/blog/waE4jPUv.htm)
+* 影评地址：https://cdns.ivtool.com/blog/2bf2592bc567d0cef48844315ada6849.png-w600
+* 上映时间：2006
+
+### 造梦者 - Dream Maker - 2016 - ★★★★
+
+阿里巴巴官方纪录片，又叫少年阿里 或 马云和他永远的“少年阿里”
+
+十几年前，一个来自中国的英语老师在世界人民面前夸下海口，没有人相信。 
+而如今，这个英语老师所带领的阿里巴巴已然成为了很多人眼中的创业神话。 
+但在这个过程里究竟有多少耐人寻味的故事？所谓的传奇里蕴含着多少复杂的味道？ 
+片首次曝光了16年来影响阿里巴巴发展历程的珍贵影像，阿里早期创始人及合伙人亲身讲述这个故事背后的五味杂陈。
+
+
+![在这里插入图片描述](https://imgconvert.csdnimg.cn/aHR0cHM6Ly9jZG5zLml2dG9vbC5jb20vYmxvZy9kOTQxOWQyZDdmMWMzMDY3OGUwYjM0MTNhYzQ3MDg0Zi5wbmctdzYwMA?x-oss-process=image/format,png)
+
+* 在线播放：[在线播放地址](https://www.kcsou.com/blog/waE4jPUv.htm)
+* 影评地址：https://movie.douban.com/subject/26827865/
+* 上映时间：2016-06-25
+* 豆瓣评分：8.4
+
+
+### 你瞧，网络世界的幻想 -  Lo and Behold, Reveries of the Connected World  - 2016 - ★★★
+
+韦纳·赫尔佐格记述了网络世界的前世今生，带着跟他探索地球其它地方同样时的好奇心和想象力，探索了数字时代的这片土地。赫尔佐格带领观众走向一段奇妙的旅程，经历了一系列有趣的对话，揭示了网络世界如何改变了我们的现实世界，如何影响了人与人之间的关系。
+
+
+![](https://imgconvert.csdnimg.cn/aHR0cHM6Ly9jZG5zLml2dG9vbC5jb20vYmxvZy9lN2EwZjBjYzUxMDVmM2FhOWM0OTUxMGFiNjRkMjYwZS5wbmctdzYwMA?x-oss-process=image/format,png)
+
+* 在线播放：[在线播放地址](https://www.kcsou.com/blog/waE4jPUv.htm)
+* 影评地址：https://movie.douban.com/subject/26681644/
+* 上映时间：2016-01-23
+* 豆瓣评分：7.2
+
+
+### 现代生活的秘密规则：算法 - The Secret Rules of Modern Living: Algorithms - 2015  - ★★★★
+
+![](https://imgconvert.csdnimg.cn/aHR0cHM6Ly9jZG5zLml2dG9vbC5jb20vYmxvZy8wYThmM2U4ZTU5MjIxZGNjYTc5YjhjODhlNDM0ZTNjNC5wbmctdzYwMA?x-oss-process=image/format,png)
+![](https://imgconvert.csdnimg.cn/aHR0cHM6Ly9jZG5zLml2dG9vbC5jb20vYmxvZy83OTgyZTQzY2FmNGMzYjhlNDg5NDQ2ODViMDgwMzdjNC5wbmctdzYwMA?x-oss-process=image/format,png)
+
+　　在这部纪录片中，数学教授马库斯·杜·索托伊揭示了算法的隐秘世界，历史长达 2000 年的算法到底是如何帮助人类解决问题的？
+
+Without us noticing, modern life has been taken over. Algorithms run everything from search engines on the internet to satnavs and credit card data security – they even help us travel the world, find love and save lives.
+
+Mathematician Professor Marcus du Sautoy demystifies the hidden world of algorithms. By showing us some of the algorithms most essential to our lives, he reveals where these 2,000-year-old problem solvers came from, how they work, what they have achieved and how they are now so advanced they can even programme themselves.
+
+精彩影评:
+> 做了五年招生宣传工作，才知道大学录取用的那个“平行志愿+级差”在数学上叫盖尔沙普利算法。还有最后讲的那个选电影的算法也很厉害，网易云音乐就是用这个来推荐歌曲的。
+
+* 在线播放：[在线播放地址](https://www.kcsou.com/blog/waE4jPUv.htm)
+* 上映时间：2015-09-24
+* 影评地址：https://movie.douban.com/subject/26616155/
+* 豆瓣评分 8.4
+
+
+### 深网：比特币和丝绸之路未透露的故事 - Deep Web: The Untold Story of BitCoin and Silk Road - 2015 - ★★★
+
+深网一直是不应该讨论的深层网络，如果你在谷歌或者维基百科上搜索“深网”(The Deep Web)或是“暗网”(Hidden Internet)，就会知道它并非罕见，不过许多网站都拒绝告诉你怎么获取这些信息及你会在里面发现什么。运气不好的话，你会看到血腥的东西或是发现一些秘密的儿童色情行业。在深网里面你会发现远远超过你想象的大量令人震惊的网站和检举组织，就像个网络商店额虚拟黑市。在这里你能用非常复杂的方式和毒品贩子、职业打手以及恐怖分子、爆破装置制造商取得联系。影片主要关注了美国大型网络黑市“丝绸之路”创建人罗斯·乌布利希被捕事件。
+
+
+![](https://imgconvert.csdnimg.cn/aHR0cHM6Ly9jZG5zLml2dG9vbC5jb20vYmxvZy9iZTVhN2ViN2FlNTAxYjkzMWYxODA0NDQzMGExNTVkOC5wbmctdzYwMA?x-oss-process=image/format,png)
+
+* 在线播放：[在线播放地址](https://www.kcsou.com/blog/waE4jPUv.htm)
+* 上映时间： 2015-03-15
+* 影评地址：https://movie.douban.com/subject/26324418/
+* 豆瓣评分： 6.8
+
+
+### 斯诺登的大逃亡 -  Snowdens store flugt  - 2015 - ★★★★
+
+该片披露了美国“棱镜”项目曝光者斯诺登从香港前往莫斯科的诸多细节，包括他在香港与卫报记者会面的过程。 纪录片导演介绍，该片披露了美国“棱镜”项目曝光者斯诺登从香港前往莫斯科的诸多细节，包括他在香港与卫报记者会面的过程。 当时，他们接头的暗号之一，是斯诺登手里的魔方。纪录片通过情景再现的方式向观众介绍了许多不为人知的细节，曾为斯诺登提供过帮助的关键人物首次详细披露整个过程。影片内的受访对象包括美国前国家安全局局长迈克尔海登，维基解密创始人朱利安·阿桑奇等，也包括斯诺登的父亲。
+
+
+![在这里插入图片描述](https://imgconvert.csdnimg.cn/aHR0cHM6Ly9jZG5zLml2dG9vbC5jb20vYmxvZy9mYmE1OTc2MTNlZjVlMDE1MWZlNDcwYzBkMTRlNTUxOC5wbmctdzYwMA?x-oss-process=image/format,png)
+
+* 在线播放：[在线播放地址](https://www.kcsou.com/blog/waE4jPUv.htm)
+* 上映时间：2015-01-13
+* 影评地址：https://movie.douban.com/subject/26367434/
+* 豆瓣评分： 7.8
+
+
+### 比特币的崛起 - The Rise and Rise of Bitcoin - 2014 - ★★★★ 
+
+　丹是一个35岁的计算机程序员从匹兹堡人生活忙碌的生活。随着平衡工作，他的婚姻，并提高他的三个孩子，但他的大部分时间都花在积极参与所有的事情的比特币。在发现后2011比特币，他对加密货币爱和迷恋是出世，揭示他探索新的可能性的一个未知的世界。加入我们，我们将穿越Bitcoin迅速增长的世界。一路上，我们将遵循的企业家和创业者，帮助塑造新金融前沿的故事。我们将看看竞争挖掘市场和在比特币社区各种亚文化。你会遇到各种各样的人物和观点为我们研究的一个开放源代码的数字货币的社会和政治影响。将Bitcoin上升带来的货币范式的转变，将永远改变世界？
+
+![在这里插入图片描述](https://imgconvert.csdnimg.cn/aHR0cHM6Ly9jZG5zLml2dG9vbC5jb20vYmxvZy9kZTQ2NTMwMzNlMGQwZGY5NzcxODI3MzU3ZGVjOWZhMC5wbmctdzYwMA?x-oss-process=image/format,png)
+
+* 在线播放：[在线播放地址](https://www.kcsou.com/blog/waE4jPUv.htm)
+* 上映时间： 2014-10-10
+* 影评地址：https://movie.douban.com/subject/25774681/
+* 豆瓣评分：7.4
+
+
+### 第四公民 - Citizenfour - 2014 - ★★★★
+
+
+《第四公民》高度还原“棱镜门”事件始末，为观众真实揭秘身处漩涡中心的爱德华•斯诺登。
+
+纪录片导演柏翠丝本人也是“棱镜门”事件的核心人物，正是在她和《卫报》记者格仑•格林沃德的协助下，斯诺登才得以将美国国家安全局的监控丑闻公之于众。而柏翠丝与格林沃德也因此荣获普利策奖。片名“第四公民”（citizen four）正是斯诺登早期与柏翠丝邮件沟通时使用的匿名代号。2013年6月，当柏翠丝第一次飞往香港与斯诺登见面的时候，她随身携带的摄像机也真实记录了当时的场景。
+
+原来斯诺登在身份没有公开之前就一直和本片导演劳拉•波特拉斯以及卫报的记者匿名联系，所以片子从第一封邮件，到第一篇新闻，再到公开身份，他为了更多的声音，其实做了一个天大的决定，没有人知道明天甚至下一个小时会怎样，电影却举重若轻地，似乎只是展示他几天的日常生活。太勇敢了。
+
+![](https://imgconvert.csdnimg.cn/aHR0cHM6Ly9jZG5zLml2dG9vbC5jb20vYmxvZy9iOTUyMzY1M2RlZjk5MjYwZjVjZWJjYzczMDg1Nzc4Zi5wbmctdzYwMA?x-oss-process=image/format,png)
+
+* 在线播放：[在线播放地址](https://www.kcsou.com/blog/waE4jPUv.htm)
+* 上映时间：2014-10-10
+* 影评地址：https://movie.douban.com/subject/26059437/
+* 豆瓣评分 8.4
+
+
+###互联网之子 - The Internet's Own Boy: The Story of Aaron Swartz - 2014 - ★★★★★
+
+![](https://imgconvert.csdnimg.cn/aHR0cHM6Ly9jZG5zLml2dG9vbC5jb20vYmxvZy80NzA4ZWZmOWNhN2JkZjM1ZDE1MjkxZDBhYTViNDkxNS5wbmctdzYwMA?x-oss-process=image/format,png)
+
+斯沃茨很早就参与网络标准的制订，并在14岁就参与创造RSS 1.0规格。
+
+从那时开始他就成为 W3CRDF 核心工作小组的成员，跟John Gruber共同设计了排版语言Markdown（简书使用的编辑器就有Markdown），并参与其他许多计划。
+
+斯沃茨在2006年创办了网ok ever published")。斯沃茨早在 2000 年时就用wiki技术开发了 'theinfo' 百科全书计划。他公司的后台也以 wiki 架设。Swartz曾在斯坦福大学读书，但很快辍学创建Infogami软件公司。Aaron Swartz还是社交新闻网站Reddit的三位创始人之一， 2006年初，Infogami与Reddit合并，并在2006年底被出售给出版公司Condé Nast。
+
+Swartz在20周岁生日前出售了他所持有的股份。 Swartz在2006年用wiki技术创办了网上免费图书馆Open Library, 目的是为了让每一本曾经出版过的书都有自己的网页("one web page for every book ever published")。
+
+Swartz在2010年创立了反对互联网审查的Demand Progress。这个机构通过Email及其他媒体组织群众，针对特定议题向国会议员及其他意见领袖表达意见、施予压力。
+
+2011年7月19日，Swartz因数字偷窃被捕，被控从MIT和JSTOR下载了480万篇学术论文，他在支付10万美元保释金后被释放。Swartz是利用外置硬盘、通过物理接触的方式从MIT内网运行脚本下载JSTOR论文的。2013年1月自杀身亡。
+
+精彩影评：
+> 看到开头不久，他们说，他是一个与世界不太和睦的人，世界对他也不太和睦，当即想到自己，并且，已经猜测到他可能会有抑郁。因为但凡这种才华横溢又与传统不合作的人，要么，成为传奇，要么，成为牺牲品。当然，独享其一的人少，更多的，是两者兼得或两者兼弃的人，比如斯沃茨。
+
+
+* 在线播放：[在线播放地址](https://www.kcsou.com/blog/waE4jPUv.htm)
+* 上映时间：2014-01-20
+* 影评地址：https://movie.douban.com/subject/25785114/
+* 豆瓣评分：9.1
+
+### 互联网时代 - 2014 - ★★★★
+
+这是中央电视台继《华尔街》、《金砖之国》、《大国重器》等一系列大型制作之后的再度重磅出击。全片以互联网对人类社会的改变为基点，从历史出发，以国际化视野和面对未来的前瞻思考，深入探寻互联网时代的本质，思考这场变革对经济、政治、社会、人性等各方面的深远影响。该作品旨在引导全社会更准确、全面地认识和理解互联网，更深刻地思考互联网，有准备地迎接一个新时代的到来。
+
+
+![](https://imgconvert.csdnimg.cn/aHR0cHM6Ly9jZG5zLml2dG9vbC5jb20vYmxvZy9kMzBjOWU2M2Q1OWUwNTVjZGFhMjhiYWY4ODY5M2I3Ni5wbmctdzYwMA?x-oss-process=image/format,png)
+
+* 在线播放：[在线播放地址](https://www.kcsou.com/blog/waE4jPUv.htm)
+* 上映时间： 2014
+* 影评地址：https://movie.douban.com/subject/24697971/
+* 豆瓣评分：8.4
+
+
+### 骇客军团故事 - We Are Legion: The Story of the Hacktivists - 2013 - ★★★★
+
+　　占领华尔街、反全球化运动袭卷全球，在伦敦的示威者纷纷带上有着一双细眼、山羊胡与诡异微笑的现代版盖伊．福克斯「V怪客」(V for Vendetta)的面具，维基解密的发起人亚桑奇莅临演说也戴了「V面具」，更引起示威者纷纷效尤，使得「V面具」俨然成为此波全球抗议示威中最独特的文化现象。导演布莱恩‧ 耐本伯格(Brian Knappenberger)《骇客军团故事》完整纪录这波方兴未艾、结合网路与现实的公民运动。
+
+　　「We Are Legion」组织由一群网路上的匿名者(Anonymous) 组成，成员来自网路世界的各个角落，他们在网路上以电子邮件、木马程式攻击企业、政府网站，在现实中更戴起V怪客面具发动占领华尔街、反核游行、反全球化等抗争，充满创意而活泼的文化现象不仅表现出民众对抗企业、政府的怒火，更将网路世代的公民意见化为实际的行动参与。对于今年以网路脸书集结抗争力量的台湾来说，网路势力已成为公民面对企业、政府不公义行径的主要发声管道，西方兴起的「We Are Legion」运动势必给台湾的公民运动者更多的省思与行动力量。
+
+
+![](https://imgconvert.csdnimg.cn/aHR0cHM6Ly9jZG5zLml2dG9vbC5jb20vYmxvZy80OWE3ZGE4MjBkNDY2OTYyOTEyMjExMjZjN2M5YzA5OS5wbmctdzYwMA?x-oss-process=image/format,png)
+
+* 在线播放：[在线播放地址](https://www.kcsou.com/blog/waE4jPUv.htm)
+* 上映时间：2013-03-01
+* 影评地址：https://movie.douban.com/subject/24744402/
+* 豆瓣评分：7.3
+
+### 硅谷 - Silicon Valley  - 2013 - ★★★★★
+
+硅谷的起源要追溯到仙童半导体公司的成立
+当Skockley实验室的8名员工离职创建一家新公司的时候，他们被称为“八叛逆”（Traitorous Eight）
+该片将视线聚焦于“叛逆的八人”(Traitorous Eight)，这些人离开肖克利半导体实验室(Shockley Semiconductor)创立了仙童半导体公司(Fairchild Semiconductor)，而仙童员工们后来衍生出了英特尔和AMD这样的伟大公司，催生出如今的硅谷
+
+In 1957, decades before Steve Jobs dreamed up Apple or Mark Zuckerberg created Facebook, a group of eight brilliant young men defected from the Shockley Semiconductor Company in order to start their own transistor business. Their leader was 29-year-old Robert Noyce, a physicist with a brilliant mind and the affability of a born salesman who would co-invent the microchip -- an essential component of nearly all modern electronics today, including computers, motor vehicles, cell phones and household appliances.
+
+![](https://imgconvert.csdnimg.cn/aHR0cHM6Ly9jZG5zLml2dG9vbC5jb20vYmxvZy83NmEyNDFjNDA1ZmIyODJhODNiYWE4MjQ2M2JkYTlmYy5wbmctdzYwMA?x-oss-process=image/format,png)
+
+* 在线播放：[在线播放地址](https://www.kcsou.com/blog/waE4jPUv.htm)
+* 上映时间：2013-02-19
+* 影评地址：https://movie.douban.com/subject/21354377/
+* 豆瓣评分 8.9
+
+
+### 谷歌与世界头脑 - Google and the World Brain - 2013 - ★★★★
+
+都说人类从未放弃巴别塔之梦。20 世纪30 年代着名科幻作家威尔斯的《世界大脑》预言，70 年后由智能先锋谷歌变相实现。一个要把全世界书籍扫描贮藏，旷古绝今的智库建设计划，其实已在我们半知不晓下火速进行。12 年来，数以百万计被收藏的书籍被侵犯版权，计划背后隐约浮现的超级人工智能图像，都令人惊惧交集，疑怒不休。一场紧繫知识意义和人类文化前途的划时代官司，如尖刀剖开文明之梦想两难。「待我谷歌一下」的日常琐语从此显得曲折而沉重。
+
+![](https://imgconvert.csdnimg.cn/aHR0cHM6Ly9jZG5zLml2dG9vbC5jb20vYmxvZy9kN2Y3YmJkOTQwNThhYjQ3ODBiMWZhZDRmODBjN2FkZi5wbmctdzYwMA?x-oss-process=image/format,png)
+
+* 在线播放：[在线播放地址](https://www.kcsou.com/blog/waE4jPUv.htm)
+* 上映时间：2013-02-18
+* 影评地址：https://movie.douban.com/subject/25785114/
+* 豆瓣评分 7.8
+
+### 现实生活中的海盗湾 - TPB AFK: The Pirate Bay Away from Keyboard - 2013 - ★★★★
+
+21世纪初，一个标榜着“实现真正的言论和文化传播自由”的网站横空出世。它就是日后大名鼎鼎并惹来无数争议的最大的档案分享网站海盗湾（Pirate Bay）。该网站由高特弗里德·萨特霍姆·瓦格、弗雷德里克·内伊以及彼得·桑德三个瑞典人创立，他们的精神和魄力得到来自全世界复制派（海盗党）的热烈支持，与此同时也遭到号称损失高达61亿美金的版权方的嫉恨。2008年，以好莱坞为首的巨头向海盗湾提起诉讼，三位创始人不得不“离开键盘”，与检方展开一连串的周旋。 
+
+一方以法律为手段，一方以技术为武器。这不仅是一场来自不同价值观阵营的战争……
+
+![](https://imgconvert.csdnimg.cn/aHR0cHM6Ly9jZG5zLml2dG9vbC5jb20vYmxvZy9mNjMwNTczMGE2YTNmZjM3Nzc5MmFlZDA5OGRkNTBkOC5wbmctdzYwMA?x-oss-process=image/format,png)
+
+
+* 在线播放：[在线播放地址](https://www.kcsou.com/blog/waE4jPUv.htm)
+* 上映时间：2013-02-08
+* 影评地址：https://movie.douban.com/subject/20513939/
+* 豆瓣评分 7.8
+
+### 魔鬼藏在同意书 - Terms and Conditions May Apply - 2013 - ★★★★
+
+本片探讨了互联网所谓的“免费”服务，以及日渐消失的网络隐私。人们在使用Google、Facebook这类网站，轻松点下“我同意”时，他们根本不知道自己失去的是什么。
+
+
+![](https://imgconvert.csdnimg.cn/aHR0cHM6Ly9jZG5zLml2dG9vbC5jb20vYmxvZy84YmNjMDM4NTAzODc3Y2U0YmQ3MzY3MTU4Y2I5MGE1MC5wbmctdzYwMA?x-oss-process=image/format,png)
+
+* 在线播放：[在线播放地址](https://www.kcsou.com/blog/waE4jPUv.htm)
+* 上映时间： 2013-01-22
+* 影评地址：https://movie.douban.com/subject/20514780/
+* 豆瓣评分：7.8
+
+
+### 我们窃取秘密：维基解密的故事 - We Steal Secrets: The Story of WikiLeaks  - 2013 - ★★★★
+
+纪录片饶有兴趣地从多种层面描写了信息时代的透明度和我们对真相的永远不依不饶的探寻。影片详述了朱利安·阿桑奇(Julian Assange)维基解密网站(WikiLeaks)的诞生，这个网站助长了美国有史以来最大的安全缺口。影片描述了这一神秘网站的兴衰，其中穿插着美国陆军士兵布拉德利·曼宁(Bradley Manning)泄密事件，这个令人不安的高智商士兵从美国军事和外交服务器上下载了几十万个文档。
+
+
+![](https://imgconvert.csdnimg.cn/aHR0cHM6Ly9jZG5zLml2dG9vbC5jb20vYmxvZy9hM2EwYWM4YmQ1MjNiNTg2MmM2OTA1YmE4NTljZDY1NC5wbmctdzYwMA?x-oss-process=image/format,png)
+
+
+* 在线播放：[在线播放地址](https://www.kcsou.com/blog/waE4jPUv.htm)
+* 上映时间： 2013-01-21
+* 影评地址：https://movie.douban.com/subject/20451129/
+* 豆瓣评分：7.9
+
+### 我的世界 - Minecraft: The Story of Mojang - 2012 - ★★★★★
+
+
+30岁的瑞典程序员Markus Persson写了一个小游戏Minecraft。 这个游戏模拟了一个虚拟世界，玩家可以在里面无尽地漫游。你看到各种别人建造的地标，也可以自己动手，随心所欲地建造自己的地标。这个游戏大获成功，很多人试玩后都想购买。 2010年9月，Markus Persson决定辞职，与朋友合资成立Mojang（瑞典语"组件"的意思）游戏公司，专职开发Minecraft。
+
+
+[外链图片转存失败,源站可能有防盗链机制,建议将图片保存下来直接上传(img-MIpyL4aH-1589766224499)(https://cdns.ivtool.com/blog/a8b5c4812eb50adea03fb084b4fba40d.png-w600)]
+
+
+* 在线播放：[在线播放地址](https://www.kcsou.com/blog/waE4jPUv.htm)
+* 上映时间：2012-12-23
+* 影评地址：https://movie.douban.com/subject/20471027/
+* 豆瓣评分 8.6
+
+
+### 创业的孩子们 - The Startup Kids - 2012 - ★★★★
+
+一部讲述美国和欧洲从事互联网创业年轻人身边故事的纪录片。片中采访了包括视频网站Vimeo，Soundcloud，Kiip，Dropbox，和很多其他的初创企业的年轻创业者。他们的激情，朝气和敢于冒险的精神恰恰也就是我为什么那么痴迷早期投资这份苦差事
+
+
+![](https://imgconvert.csdnimg.cn/aHR0cHM6Ly9jZG5zLml2dG9vbC5jb20vYmxvZy82MWQwZjU4NjJmYjU1ZWU1YmYyYmIyMjQ5NmQyMTA3Yy5wbmctdzYwMA?x-oss-process=image/format,png)
+
+* 在线播放：[在线播放地址](https://www.kcsou.com/blog/waE4jPUv.htm)
+* 上映时间： 2012-09-29
+* 影评地址：https://movie.douban.com/subject/24697971/
+* 豆瓣评分：7.5
+
+
+
+### 极速下载的命运 - Downloaded - 2012 - ★★★★
+
+纪录P2P传输始祖Napster音乐分享网站的兴起与没落，导演亚历士温特藉此一窥网路科技对于音乐产业的巨大影响。虽然整个网站后台随着与唱片公司版权诉讼的争议而宣告终止，但新兴网路自由的圣战，才正要掀起一股时代的浪潮。
+
+![](https://imgconvert.csdnimg.cn/aHR0cHM6Ly9jZG5zLml2dG9vbC5jb20vYmxvZy8yMjQzZWE5MmEzMDRiOTNmZmVhN2ExOTY2NjI4ZDNlOC5wbmctdzYwMA?x-oss-process=image/format,png)
+
+精彩影评:
+> 好纪录片！这是一部关于Napster的纪录片。这个软件有多牛逼呢？你现在用的p2p技术，都有它的雏形。就连早期iTunes界面都那么像它。通过这个软件的兴衰经历，反应了网络共享文化对传统产业，尤其是唱片业的冲击。而且这也是唱片工业史上第一次，科技没有帮助这个产业赚钱，而是让这个产业产生了恐惧。
+
+* 在线播放：[在线播放地址](https://www.kcsou.com/blog/waE4jPUv.htm)
+* 上映时间：2012
+* 影评地址：https://movie.douban.com/subject/21264242/
+* 豆瓣评分 8.1
+
+
+### 独立游戏大电影-  Indie Game: The Movie - 2012 - ★★★★★
+
+Indie Game: The Movie 独立游戏大电影 是一部关于独立游戏的纪录片，讲述独立游戏过往的精彩故事
+
+关于该电影:
+随着二十一世纪的到来，新的一类独立艺术家诞生了：独立游戏开发者。他们有独立的构思，特别的设计以及个性鲜明的游戏。当然，他们也希望获得成功。
+
+影片中，设计师 Edmund McMillen 和程序员 Tommy Refenes 经过两年的努力，等待着他们第一款XBOX的游戏 Super Meat Boy “超级肉食男孩” 的发布。游戏讲述的是一个绷带男孩寻找女友的故事。 
+
+而在一个名为 PAX 的视频游戏展中，开发者 Phil Fish 则推出了众人翘首以盼的画了四年制作的游戏 FEZ “费兹”。
+
+Jonathan Blow 则在考虑继 Braid “时空幻境” 之后的新游戏。而时空幻境曾一度是历史上平均最高的游戏之一。
+
+Lisanne Pajot 和 James Swirsky 第一次共同制作了这部电影，他们精心捕捉独立游戏艺术家们奋斗历程的点点滴滴，以及其艺术表现过程中的情感历程。 
+
+四个开发者，三款游戏，一个终极目标 —— 通过这部纪录片共同表达了出来。
+
+![](https://imgconvert.csdnimg.cn/aHR0cHM6Ly9jZG5zLml2dG9vbC5jb20vYmxvZy9lODZlMWEzMWEyYTNlNzE1NTEwZGM4NGVmMjEyOWQ1Yy5wbmctdzYwMA?x-oss-process=image/format,png)
+
+
+精彩影评：
+> 其实这比在facebook、twitter这种公司创业更加艰难，独立游戏开发者一旦失败就真的玩完了。Phil说：如果失败了，我会自杀。成功最困难的部分是去找到一个可以分享你成功喜悦的人。他们没有钱，可能即便成功也赚的不会太多，但他们心怀梦想值得被尊敬。
+
+
+* 在线播放：[在线播放地址](https://www.kcsou.com/blog/waE4jPUv.htm)
+* 上映时间：2012-01-20
+* 影评地址：https://movie.douban.com/subject/7015793/
+* 豆瓣评分 9.0
+
+### 寿司之神 - Jiro Dreams of Sushi  - 2011 - ★★★★★
+和程序无关，但精细求精的工匠精神值得程序员学习。本片是成为程序员而不是码农的精神指引圣经！
+
+现年86岁的小野二郎是全球最年长的三星大厨，被称为“寿司之神”。在日本地位崇高，“寿司第一人”的美誉更远播全世界。终其一生，他都在握寿司，永远以最高标准要求自己跟学徒，观察客人的用餐状况微调寿司，确保客人享受到究极美味，甚至为了保护创造寿司的双手，不工作时永远带着手套，连睡觉也不懈怠。
+
+他的寿司店“数寄屋桥次郎”远近驰名，从食材、制作到入口瞬间，每个步骤都经过縝密计算。这间隐身东京办公大楼地下室的小店面，曾连续两年荣获美食圣经《米其林指南》三颗星最高评鉴。被誉为值得花一辈子排队等待的美味
+
+
+![](https://imgconvert.csdnimg.cn/aHR0cHM6Ly9jZG5zLml2dG9vbC5jb20vYmxvZy83NTEwMzRkMDRhOTVlYjM0OWI4YjEwMzkwZTBmZWVjMS5wbmctdzYwMA?x-oss-process=image/format,png)
+
+* 在线播放：[在线播放地址](https://www.kcsou.com/blog/waE4jPUv.htm)
+* 上映时间： 2011-11-08
+* 影评地址：https://movie.douban.com/subject/6146955/
+* 豆瓣评分 8.7
+
+
+
+### 非死不可的囧事 - Facebook Follies - 2011 - ★★★★
+
+Facebook Follies is a one-hour documentary that takes a look at the unexpected consequences of people sharing their personal information on social media. Viewers meet people who lost their jobs, their marriages, their dignity, or who even ended up in jail - all because of their own or someone else's Facebook posting. To give a broader context to the events, these stories are intercut with reflections from experts in the areas of social change, internet security and contemporary media. Shot on location in Canada, the US and the UK, Facebook Follies is an engaging journey through one of today's most pervasive forces of social change.
+
+
+![](https://imgconvert.csdnimg.cn/aHR0cHM6Ly9jZG5zLml2dG9vbC5jb20vYmxvZy8wZjkyMzQ1NDA2NTgxY2ExZjAyOGIyYjg3OWQxZjg4ZC5wbmctdzYwMA?x-oss-process=image/format,png)
+
+
+* 在线播放：[在线播放地址](https://www.kcsou.com/blog/waE4jPUv.htm)
+* 上映时间：2011-10-27
+* 影评地址：https://movie.douban.com/subject/6971297/
+* 豆瓣评分：7.4
+
+### 密码破译者：布莱切利庄园的幕后英雄 - Timewatch - Code-Breakers: Bletchley Park's Lost Heroes - 2011 - ★★★★★
+你是否知道，二战时期英国的破译中心----布莱切利庄园。庄园位于伦敦以北50英里的BLETCHLEY PARK，由于最高军事机密，这个地名从未出现在任何地图上。布莱切利庄园默默无语，但它改变了整个世界。
+
+纪录片 [密码破译中心----布莱切利庄园]，介绍二战期间为破译纳粹德国顶级密码“金枪鱼密码”，英国在布莱切利庄园设立了监听站。因为德军一次小小疏忽，英国破译者成功破译了密码。情报人员截获了纳粹德国元首希特勒与其数名高级将领的密电，由此二战库尔斯克战役成为转折点，苏军一路攻克柏林。 布莱切利庄园的英雄们使二战缩短了至少两年时间，挽救无数生命免遭涂炭，取得了伟大胜利。
+
+影片介绍了庄园里三位天才的丰功伟绩。阿兰•图灵破译了德国的 Enigma 密码。2014年3月25日，布莱切利庄园当年那支破译小组的最后一位成员，二战密码破译界里程碑式的人物雷蒙德•罗伯特上尉与世长辞，享年93岁。历史上第一台计算机，也并非出自美国人之手。对世界计算机发展做出卓越贡献的两位伟人BILL TUTTE和 TOMMY FLOWERS，直到上世界七八十年代解密后，才开始给世界一个真相。其中BILL TUTTE后来移民加拿大，并一直在UNIVERSITYOF WATERLOO工作，这也是为什么滑铁卢大学的计算机专业是世界文明的一个原因吧。
+
+![](https://imgconvert.csdnimg.cn/aHR0cHM6Ly9jZG5zLml2dG9vbC5jb20vYmxvZy8xZTU2MmQ2MzgwMmIwYmNhYjUwNTc0NjM3Mzc1YWFiOC5wbmctdzYwMA?x-oss-process=image/format,png)
+
+![](https://imgconvert.csdnimg.cn/aHR0cHM6Ly9jZG5zLml2dG9vbC5jb20vYmxvZy8wMDE0Njc3ZGRhNTdhZmExZDk3NWY1ODliYTI5ZDY3Mi5wbmctdzYwMA?x-oss-process=image/format,png)
+
+* 在线播放：[在线播放地址](https://www.kcsou.com/blog/waE4jPUv.htm)
+* 上映时间：2011-10-25
+* 影评地址：https://movie.douban.com/subject/2223463/
+* 豆瓣评分 8.9
+
+### iGenius：史蒂夫·乔布斯是如何改变世界的 -  iGenius: How Steve Jobs Changed the World - 2011 - ★★★★
+
+
+With in-depth and detailed interviews, the influence Apple co-founder and CEO Steve Jobs had on modern society is examined, from helping to develop the personal computer to changing how people watch movies and listen to music.
+
+
+![](https://imgconvert.csdnimg.cn/aHR0cHM6Ly9jZG5zLml2dG9vbC5jb20vYmxvZy9lMjc0NjM3YmU4Yjc3ZWQ4MzM2ODZiZTg0YWIyODdjYy5wbmctdzYwMA?x-oss-process=image/format,png)
+
+
+* 在线播放：[在线播放地址](https://www.kcsou.com/blog/waE4jPUv.htm)
+* 上映时间：2011-10-17
+* 影评地址：https://movie.douban.com/subject/10439840/
+* 豆瓣评分 7.9
+
+### 风投这东西（冒险之事） - Something Ventured - 2011 - ★★★★
+
+![](https://imgconvert.csdnimg.cn/aHR0cHM6Ly81YjA5ODhlNTk1MjI1LmNkbi5zb2h1Y3MuY29tL2ltYWdlcy8yMDE3MTAzMC81MDU0MjYzOTFiNWU0ZmVkYTQ4NWZiYmZiNTk0NDBlNi5qcGVn?x-oss-process=image/format,png)
+
+《冒险之事》讲述了一群敢于冒险的人同优秀的企业家一起创办全球最伟大的科技公司的故事，这些公司包括苹果、英特尔、思科、谷歌。这些人拥有远见、时机，甚至只有运气。但是他们却在“风险投资”这一词被定义前做着具有开创性的事情。这部纪录片性质的电影演绎了戈登-摩尔、迈克-马库拉等知名投资人及早期投资人的故事。
+
+
+
+* 在线播放：[在线播放地址](https://www.kcsou.com/blog/waE4jPUv.htm)
+* 上映时间：2011-04-24
+* 影评地址：https://movie.douban.com/subject/6757775/
+* 豆瓣评分 7.8
+
+### 维基解密的抗争 - WikiRebels: The Documentary -  2010 - ★★★★★
+
+
+Exclusive rough-cut of first in-depth documentary on WikiLeaks and the people behind it! 
+
+From summer 2010 until now, Swedish Television has been following the secretive media network WikiLeaks and its enigmatic Editor-in-Chief Julian Assange. 
+
+Reporters Jesper Huor and Bosse Lindquist have travelled to key countries where WikiLeaks operates, interviewing top members, such as Assange, new Spokesperson Kristinn Hrafnsson, as well as people like Daniel Domscheit-Berg who now is starting his own version - Openleaks.org! 
+
+Where is the secretive organization heading? Stronger than ever, or broken by the US? Who is Assange: champion of freedom, spy or rapist? What are his objectives? What are the consequences for the internet?
+
+
+![](https://imgconvert.csdnimg.cn/aHR0cHM6Ly9jZG5zLml2dG9vbC5jb20vYmxvZy8yOWU0NTIzZmI0MDhhYjZmZGZmNTY3MjRlYmY1MmU1Zi5wbmctdzYwMA?x-oss-process=image/format,png)
+
+* 在线播放：[在线播放地址](https://www.kcsou.com/blog/waE4jPUv.htm)
+* 上映时间：2010-12-12
+* 影评地址：https://movie.douban.com/subject/5423352/
+* 豆瓣评分 8.5
+
+
+
+### 皮克斯的故事 - The Pixar Story - 2007 - ★★★★★
+
+这部花费6年时间制作而成的纪录片，聚焦了动画业巨头皮克斯的发展史。片中主要采取的是面对面采访的形式，还穿插了皮克斯创作的一些顽皮形象的短片，其中更包括拉塞特获得学生奥斯卡奖的短片作品。众多被访问者——从汤姆·汉克斯、蒂姆·艾伦、比利·克里斯托到乔治·卢卡斯以及众位皮克斯的动画制作人——都尽可能详尽地解释了每部影片要达到特定艺术效果所需的技术条件。
+
+
+![](https://imgconvert.csdnimg.cn/aHR0cHM6Ly9jZG5zLml2dG9vbC5jb20vYmxvZy9jNTM2NDNkYTBjZjdlMmU4ZDEyNzA0NDBiMTQzNmM5ZC5wbmctdzYwMA?x-oss-process=image/format,png)
+
+* 在线播放：[在线播放地址](https://www.kcsou.com/blog/waE4jPUv.htm)
+* 上映时间：2007-08-28
+* 影评地址：https://movie.douban.com/subject/2223463/
+* 豆瓣评分 8.9
+
+### 操作系统革命-Revolution OS - 2002 - ★★★★★
+
+在微软垄断下有一件东西永远它永远不会给你――真正的自由。也正是因为这个原因，不少先锋人物站出来反抗微软帝国，并努力建立一种新的操作系统――没有人为的限制，任何人都可以自由地使用。 
+
+为了记录这些人的艰苦历程，J.T.S. Moore拍摄了全新的记录片――REVOLUTON OS，向公众介绍这些建立Linux操作系统，奋起反抗垄断的斗士的人生经历。 
+
+现在微软已经明显感到了来自Linux的压力。微软的首席执行官去年6月公开表示："Linux 是一种癌症！"。但这丝毫不能影响Linux发展的步伐。 
+
+REVOLUTION OS中记录了Linux的创建人Linus Torvalds以及Richard Stallman, Bruce Perens, Eric Raymond, Brian Behlendorf, Michael Tiemann, Larry Augustin, Frank Hecker, Rob Malda等人的生活经历或者采访记录。
+
+
+[外链图片转存失败,源站可能有防盗链机制,建议将图片保存下来直接上传(img-2C78wvYF-1589766224505)(https://cdns.ivtool.com/blog/3ed72854285aaaf43239aa39d519e461.png-w600)]
+
+* 在线播放：[在线播放地址](https://www.kcsou.com/blog/waE4jPUv.htm)
+* 上映时间：2002-02-15
+* 影评地址：https://movie.douban.com/subject/1437389/
+* 豆瓣评分 8.6
+
+### 代码 - The Code -  2002 - ★★★★
+
+1991年，年仅20岁的Linus Torvalds，芬兰赫尔辛基大学的学生在网络新闻组里发布了一帖，要求大家给他既将要编写的操作系统一些建议，使他编写出更好的操作系统。他把这个项目作为一个爱好，他说，它不会成为“专业的”。但是10过去了，他与遍布世界的骇客们完成了一个叫做Linux的操作系统，其可与Windows2000竞争服务器市场，现在正在进军桌面市场。Linux为什么与众不同，是如何向传统软件企业发起挑战。每个用户都可以自由修改软件，使其适合自己使用。 
+
+这部纪录片由芬兰电视台制作，后经giFT（Linux上的p2p网络）流入网络。 
+
+此片较另一部Linux为主题的纪录片-《操作系统的革命》，更全面客观，《操作系统的革命》没能对开源运动中的许多重要问题进行深入的讨论，也没能很好的介绍开源项目的发展和开发过程。 
+
+此片的看点有：Linus家庭的采访，拍摄到了Linus曾经开发Linux的地方，通过讲述Linux开发的历史，讲解开源社区的开发过程，对“开源软件”与“自由软件”进行对比和讨论。Linux商业化的方法。有趣的是Linus片中承认自己是社会主义者。开源软件在第三世界的发展。还有商业化后对开源社区的影响。
+
+
+[外链图片转存失败,源站可能有防盗链机制,建议将图片保存下来直接上传(img-HiugBDHE-1589766224505)(https://cdns.ivtool.com/blog/9ea19a846be55d9e1af38dbcd30bf77b.png-w600)]
+
+* 在线播放：[在线播放地址](https://www.kcsou.com/blog/waE4jPUv.htm)
+* 上映时间：2002-01-09
+* 影评地址：https://movie.douban.com/subject/1418357/
+* 豆瓣评分 8.1
+
+
+
+### 代码奔腾 - Code Rush - 2000 - ★★★★★
+
+
+这是一部讲述Netscape和Mozilla的故事的纪录片。
+
+Netscape是一家伟大的公司，它发明了img标签、cookie、ssl安全协议，当然还有如今HTML5时代的明星语言Javascript！但是由于众所周知的原因，它失败了。
+
+Netscape最终将浏览器代码开源，这个新项目就是Mozilla！摄制团队横跨了期间重要的几个时间点，整整跟踪了程序员们一年的时间，最终制成这部纪录片。
+
+独立制片人从1998年3月到1999年4月跟随Mozilla的团队，他们曾经曾开发了网景浏览器的源代码，并走向世界，如今在尽最后的努力来挽救公司。
+
+其结果是计算机历史上一个了不起的瞬间，拍摄做这工作的，是第一个内部测试版的人，此刻杰米Zawinski撰写上传的第一个建立公开的应用程序，通过集体会议宣布AOL的收购。它开启了了全国性的PBS在2000年3月，也是互联网泡沫崩溃的开始
+
+[外链图片转存失败,源站可能有防盗链机制,建议将图片保存下来直接上传(img-t92hfS2y-1589766224506)(https://cdns.ivtool.com/blog/58da70344ca9e60cfb90510ed6acfb81.png-w600)]
+
+
+* 在线播放：[在线播放地址](https://www.kcsou.com/blog/waE4jPUv.htm)
+* 上映时间：2000-04-25
+* 影评地址：https://movie.douban.com/subject/3124124/
+* 豆瓣评分 8.7
+
+
+### 书呆子2.0.1：互联网简史 - Nerds 2.0.1: A Brief History of the Internet  - 1998 - ★★★★
+
+
+本片是由美国公共广播服务(PBS)组织(由全美349个地区公共电视台支持的非营利性组织)，制作的电视影集。也是"计算机英雄传(The Trumph of the Nerds)"的续集。"计算机英雄传"说的是个人计算机的故事，而"鬼才"则说的是网络，因特网的故事。
+
+本片从六十年代的ARPANet，说到七十、八十年代的个人计算机，至九十年代的万维网(World Wild Web)和Mosaic浏览器。前后横跨了四十年。也包括了电子、计算机、网络、自由软件、电子商务等产业的起源。 
+
+![](https://imgconvert.csdnimg.cn/aHR0cHM6Ly9jZG5zLml2dG9vbC5jb20vYmxvZy9mZmIwNWRkOTI2YjVjOGMxMGM5ZDk0NWM0YzZkMGIwOC5wbmctdzYwMA?x-oss-process=image/format,png) 
+
+* 在线播放：[在线播放地址](https://www.kcsou.com/blog/waE4jPUv.htm)
+* 上映时间：1998
+* 影评地址：https://movie.douban.com/subject/2209286/
+
+
+
+### 书呆子的胜利：意外帝国的崛起 -Triumph of the Nerds: The Rise of Accidental Empires - 1996 - ★★★★★
+
+微软和苹果的发家史
+
+![](https://imgconvert.csdnimg.cn/aHR0cHM6Ly9jZG5zLml2dG9vbC5jb20vYmxvZy9hZjViNmNkMDc2MDkwNjAxODJhYzliOTM0YjIyMzI3Zi5wbmctdzYwMA?x-oss-process=image/format,png)
+
+
+* 在线播放：[在线播放地址](https://www.kcsou.com/blog/waE4jPUv.htm)
+* 上映时间：1996-06-12
+* 影评地址：https://movie.douban.com/subject/2993935/
+* 豆瓣评分 8.9
+
+### 黑客：电子时代的奇才 - Hackers: Wizards of the Electronic Age - 1984
+
+一步关于80年代的程序员的纪录片
+
+![](https://imgconvert.csdnimg.cn/aHR0cHM6Ly9jZG5zLml2dG9vbC5jb20vYmxvZy80M2M4NGIyNWI0N2UyODA4MmE3NGFkZDk0YzdhMGE5Ni5wbmctdzYwMA?x-oss-process=image/format,png)
+
+* 在线播放：[在线播放地址](https://www.kcsou.com/blog/waE4jPUv.htm)
+* 上映时间：1984
+* 影评地址：https://movie.douban.com/subject/2993935/
+
+
+
+
+
 
 
